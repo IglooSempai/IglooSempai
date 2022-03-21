@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @IglooSempai
+- 👀 I’m interested in Tech and Art.
+- 🌱 I’m currently learning the ways of the force.
+- 💞️ I’m looking to collaborate on interesting Tech Art Projects
+- 📫 How to reach me here!
